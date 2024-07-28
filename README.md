@@ -1,1 +1,1 @@
-# raycast_communityjp_statement
+# raycast_community_jp_statement
